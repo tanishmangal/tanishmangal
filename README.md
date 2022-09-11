@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **mangaltanish103@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1Kyskxt0-SF1luGpFjhdT5vsiPNqqIgnI/view?usp=sharing](https://drive.google.com/file/d/1Kyskxt0-SF1luGpFjhdT5vsiPNqqIgnI/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1Z7SRyQ7Teb4MYtx8zbhX_oHf4Z97v0hV/view?usp=sharing](https://drive.google.com/file/d/1Z7SRyQ7Teb4MYtx8zbhX_oHf4Z97v0hV/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
